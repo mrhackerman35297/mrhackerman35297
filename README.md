@@ -11,4 +11,4 @@
 🤔 [ Help]        : Willing to help with any roblox script I am bored.   
 ```
 
-[![Discord Presense](https://cdn.discordapp.com/icons/995939792695074826/bbc32126e2d856cf7541880a8f774667.png?size=4096)](https://discord.gg/wPQHasG3nX)
+[![Discord Presense](https://cdn.discordapp.com/icons/995939792695074826/f7aa9f00121b578c59c6b7b3e196c3e8.png?size=4096)](https://discord.gg/wPQHasG3nX)
